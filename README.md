@@ -1,1 +1,1 @@
-# Everything-about-Adobe-Photoshop
+# Everything about Adobe Photoshop
